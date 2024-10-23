@@ -1,0 +1,1 @@
+# rizik7.github.io
